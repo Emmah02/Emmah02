@@ -1,6 +1,6 @@
 hi there ,I'm Emmah02
-I'm inyerested in learning new skills and ideas concerning computersand lifestyle
-am currently pursuing batchelor degree in psychology
+I'm interested in learning new skills and ideas concerning computersand lifestyle
+am currently pursuing bachelor degree in psychology
 Ready to collaborate with anyone willing to help me in skill development and field of psychology- 👋 Hi, I’m @Emmah02
 how to reach me ,you can email at emmahchelangat54@gmail.com or @+254758420380
 fun fact about is am a first learner ,am an introvert 
